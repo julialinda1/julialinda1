@@ -7,6 +7,8 @@ meu nome é Júlia Vitória Morais de Oliveira
 
 
 ### você pode entrar em contato comigo 
-
+XXIX-III-MMVII
+somos quem somos por causa das consequências 💙
 0000109243902xsp@al.educacao.sp.gov.br
+![](https://media1.tenor.com/m/O0cqHpIPapMAAAAC/crazykk-anime349.gif)
 
